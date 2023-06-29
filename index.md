@@ -1,0 +1,1 @@
+Your personal data is protected according to all international requirements and guidelines. Our application collects personal information about customers such as device and customer Ids and transffered to 3rd partners for advertisement purposes.
